@@ -1,4 +1,4 @@
 ios无感漏洞盗u系统
 整套漏洞源代码加后台已在TG频道公开
 需要的自行下载随便玩。
-TG频道：iosdaouu  TG联系：w2admin
+TG频道：@iosdaouu  
